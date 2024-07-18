@@ -1,4 +1,4 @@
-##Privacy Policy for Plant Teacher
+## Privacy Policy for Plant Teacher
 
 ##Effective Date: 18.07.2024
 
